@@ -1,1 +1,1 @@
- 
+  I have been working in the field of targeting for three years and have completed various courses from Skillbox. After gaining valuable experience, I decided to start learning front-end and back-end development. Currently, my goal is to become a true specialist in this field, and I am eager to continue my education and development in this direction.
